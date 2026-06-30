@@ -1,7 +1,5 @@
-# yinyun
-
-# YinYun隐云官方地址（2026年月日更新）
-YinYun隐云官网地址</br>
+# YinYun隐云机场官方地址（2026年月日更新）
+YinYun隐云机场官网地址</br>
 最新地址：[wkacc.xyz](https://wkacc.xyz/?code=4987f72d)</br>
 官方地址：[yinyun365.com](https://yinyun365.com/?code=4987f72d)</br>
 ## 邀请码
