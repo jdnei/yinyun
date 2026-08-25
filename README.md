@@ -1,7 +1,7 @@
 # YinYun隐云机场官方地址(2026年8月24日更新)
 YinYun隐云机场官网地址</br>
-最新地址：[wkacc.xyz](https://wkacc.xyz/?code=4987f72d)</br>
-官方地址：[yinyun365.com](https://yinyun365.com/?code=4987f72d)</br>
+最新地址：[wkacc.xyz](https://to.iix.im/yy02)</br>
+官方地址：[yinyun365.com](https://to.iix.im/yy01)</br>
 ## 邀请码
 `此邀请码注册送3天5G套餐(此活动官方随时取消)`
 ```bash
