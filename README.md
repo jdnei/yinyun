@@ -1,4 +1,4 @@
-# YinYun隐云机场官方地址(2026年8月24日更新)
+# YinYun隐云机场官方地址(2026年8月26日更新)
 YinYun隐云机场官网地址</br>
 最新地址：[wkacc.xyz](https://to.iix.im/yy02)</br>
 官方地址：[yinyun365.com](https://to.iix.im/yy01)</br>
