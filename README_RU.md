@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 Русский | 🇮🇷 [فارسی](README_FA.md)
 
-# Официальный сайт YinYun VPN (обновлено 3 ноября 2026)
+# Официальный сайт YinYun VPN (обновлено 4 ноября 2026)
 
 Официальный сайт VPN-сервиса YinYun<br>
 Новый адрес: [wkacc.xyz](https://to.iix.im/yy02)<br>
