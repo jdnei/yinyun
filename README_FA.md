@@ -1,6 +1,6 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
 
-# آدرس رسمی VPN یین‌یون (YinYun) -(به‌روزرسانی 4 نوامبر 2026)
+# آدرس رسمی VPN یین‌یون (YinYun) -(به‌روزرسانی 5 نوامبر 2026)
 وب‌سایت رسمی VPN یین‌یون (YinYun)<br>
 جدیدترین آدرس: [wkacc.xyz](https://to.iix.im/yy02)<br>
 آدرس رسمی: [yinyun365.com](https://to.iix.im/yy01)<br>
